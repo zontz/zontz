@@ -15,6 +15,7 @@
 - A passionate iOS developer
 - Playing tennis at spare time
 - Love to learn something new
+- SHOLOPAI
 
 <br><br>
 
